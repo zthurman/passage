@@ -43,4 +43,12 @@ our past.
 
 Those memories aren't alive. You are.
 
-## 
+## Lao Tzu: Tao Te Ching: A Book about the Way and the Power of the Way: A New English Version - The Uses of Not (Ursula K. Le Guin)
+
+Thirty spokes meet in the hub. Where the wheel isn't is where it's useful.
+
+Hollowed out, clay makes a pot. Where the pot's not is where it's useful.
+
+Cut doors and windows to make a room. Where the room isn't, there's room for you.
+
+So the profit in what is is in the use of what isn't.
